@@ -1,4 +1,4 @@
-
+Get ahead in evade with advanced Script for evade, featuring aimbot and auto-sell. Download now to dominate every match with ease and confidence, thanks to its advanced and
 
 
 
